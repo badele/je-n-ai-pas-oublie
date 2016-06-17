@@ -4,6 +4,7 @@ Il arrive qu'un gouvernement vote une loi contraire à nos convictions, on est �
 
 Type | Date | Description | Liens
 --- | --- | --- | ---
+Présidentielle | Juin 2016 | Police qui perd la tête contre les greves lois travail | https://twitter.com/Nikos_Los/status/743607951328436224
 Présidentielle | Mai 2016 | Passage en force de la loi travail via le 49.3 | http://www.liberation.fr/france/2016/05/10/que-risque-le-gouvernement-avec-le-493_1451682
 Présidentielle | Mai 2016 | Passage en force de la loi travail via le 49.3 | http://www.europe1.fr/politique/493-un-coup-de-force-qui-va-couter-cher-2741482
 Présidentielle | Février 2016 | Absentéisme de nombreux députés pour le vote sur l'état d'urgence | http://www.rtl.fr/actu/politique/reforme-constitutionnelle-441-deputes-absents-pour-le-vote-sur-l-etat-d-urgence-7781780246
