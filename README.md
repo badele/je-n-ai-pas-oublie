@@ -4,6 +4,7 @@ Il arrive qu'un gouvernement vote une loi contraire à nos convictions, on est �
 
 Type | Date | Description | Liens
 --- | --- | --- | ---
+Présidentielle | Octobre 2016 | condamnée à de la prison ferme, elle reste députée | http://leplus.nouvelobs.com/contribution/1364769-sylvie-andrieux-condamnee-a-de-la-prison-ferme-elle-reste-deputee-je-suis-scandalisee.html
 Présidentielle | Juin 2016 | Police qui perd la tête contre les greves lois travail | https://twitter.com/Nikos_Los/status/743607951328436224
 Présidentielle | Mai 2016 | Passage en force de la loi travail via le 49.3 | http://www.liberation.fr/france/2016/05/10/que-risque-le-gouvernement-avec-le-493_1451682
 Présidentielle | Mai 2016 | Passage en force de la loi travail via le 49.3 | http://www.europe1.fr/politique/493-un-coup-de-force-qui-va-couter-cher-2741482
