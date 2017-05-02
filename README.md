@@ -4,6 +4,7 @@ Il arrive qu'un gouvernement vote une loi contraire à nos convictions, on est �
 
 Type | Date | Description | Liens
 --- | --- | --- | ---
+Présidentielle | Mai 2017 | Suite aux précédentes mascarades présidentielles, pour contrer le FN, je vais devoir voter à contre coeur un président qui n'a pas recu plus de 25% de voix au premier tour, malgré tout, on peut d'ore et déja nommer notre future président Emmanuel Macron. 2002 ne nous a pas servi de leçon. Et notre Chirac ne nous a pas compris !
 Présidentielle | Mars 2017 | Manuel Valls qui ne tient pas parole | https://www.francebleu.fr/infos/politique/trahison-homme-sans-honneur-minable-vives-reactions-gauche-sur-le-vote-de-valls-pour-macron-1490778160
 Présidentielle | Mars 2017 | Affaire Bruno Le Roux | http://www.lejdd.fr/Politique/Les-cinq-questions-que-pose-l-affaire-Bruno-Le-Roux-855815
 Présidentielle | Février 2017 | Affaire des assistants parlementaires du Front national au Parlement européen | https://fr.wikipedia.org/wiki/Affaire_des_assistants_parlementaires_du_Front_national_au_Parlement_europ%C3%A9en
