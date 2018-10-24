@@ -5,6 +5,7 @@ Il arrive qu'un gouvernement vote une loi contraire à nos convictions, on est �
 Type | Date | Description | Liens
 --- | --- | --- | ---
 Municipales | Oct 2018 | Philippe Saurel considère qu'il y'a 2 personnes qui utilisent les pistes cyclabes, et il n'a pas l'intention d'en créer, il prèfere priviliéger le tramway | https://youtu.be/pbG00kJqD1Q?t=76
+Présidentielle | Oct 2018 | Mélenchon qui se croit au dessus de lois | https://www.youtube.com/watch?v=x4V5UY9JUGs et https://www.youtube.com/watch?v=6V9cxMbmUp4
 Présidentielle | Mai 2017 | Suite aux précédentes mascarades présidentielles, pour contrer le FN, je vais devoir voter à contre coeur un président qui n'a pas recu plus de 25% de voix au premier tour, malgré tout, on peut d'ore et déja nommer notre future président Emmanuel Macron. 2002 ne nous a pas servi de leçon. Et notre Chirac ne nous a pas compris !
 Présidentielle | Mars 2017 | Manuel Valls qui ne tient pas parole | https://www.francebleu.fr/infos/politique/trahison-homme-sans-honneur-minable-vives-reactions-gauche-sur-le-vote-de-valls-pour-macron-1490778160
 Présidentielle | Mars 2017 | Affaire Bruno Le Roux | http://www.lejdd.fr/Politique/Les-cinq-questions-que-pose-l-affaire-Bruno-Le-Roux-855815
