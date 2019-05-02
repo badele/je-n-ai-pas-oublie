@@ -4,6 +4,7 @@ Il arrive qu'un gouvernement vote une loi contraire à nos convictions, on est �
 
 Type | Date | Description | Liens
 --- | --- | --- | ---
+Présidentielle | Avril 2019 | Castaner et les mensonges | https://www.liberation.fr/checknews/2019/05/02/non-l-hopital-de-la-pitie-salpetriere-n-a-pas-ete-attaque-par-des-black-blocs-ni-degrade_1724493?utm_medium=Social&utm_source=Twitter#Echobox=1556805077 & https://twitter.com/PorcherThomas/status/1123978057956589572
 Présidentielle | Nov/Dec 2018 | Les gilets jaunes | https://www.huffingtonpost.fr/2018/12/02/quelle-reponse-aux-gilets-jaunes-macron-tient-une-reunion-de-crise-a-lelysee_a_23606268/ & http://lavdn.lavoixdunord.fr/501368/article/2018-12-05/ces-phrases-polemiques-d-emmanuel-macron-qui-ont-mis-de-l-huile-sur-le-feu
 Municipales | Oct 2018 | Philippe Saurel considère qu'il y'a 2 personnes qui utilisent les pistes cyclabes, et il n'a pas l'intention d'en créer, il prèfere priviliéger le tramway | https://youtu.be/pbG00kJqD1Q?t=76
 Présidentielle | Oct 2018 | Mélenchon qui se croit au dessus de lois | https://www.youtube.com/watch?v=x4V5UY9JUGs et https://www.youtube.com/watch?v=6V9cxMbmUp4
