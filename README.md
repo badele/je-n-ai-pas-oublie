@@ -4,9 +4,11 @@ Il arrive qu'un gouvernement vote une loi contraire à nos convictions, on est �
 
 Type | Date | Description | Liens
 --- | --- | --- | ---
+Municipales    | Jan 2020 | Le fiasco des verts !! (voir le jour j, la débrandande qu'ils vont se prendre) | https://www.midilibre.fr/2020/01/18/municipales-a-montpellier-eelv-retire-son-investiture-a-clothilde-ollier,8670742.php
+Présidentielle | Jan 2020 | Macron & Castaner (surtout lui) ont laissé impuni les nombreux actes de violences policieres | https://www.marianne.net/politique/violences-policieres-c-est-bien-en-france-que-la-police-tire-sur-des-civils-non-armes & https://www.lemonde.fr/police-justice/article/2020/01/15/violences-policieres-une-enquete-ouverte-apres-le-croche-pied-d-un-policier-a-une-manifestante_6025957_1653578.html
 Présidentielle | Avril 2019 | Castaner et les mensonges | https://www.liberation.fr/checknews/2019/05/02/non-l-hopital-de-la-pitie-salpetriere-n-a-pas-ete-attaque-par-des-black-blocs-ni-degrade_1724493?utm_medium=Social&utm_source=Twitter#Echobox=1556805077 & https://twitter.com/PorcherThomas/status/1123978057956589572
 Présidentielle | Nov/Dec 2018 | Les gilets jaunes | https://www.huffingtonpost.fr/2018/12/02/quelle-reponse-aux-gilets-jaunes-macron-tient-une-reunion-de-crise-a-lelysee_a_23606268/ & http://lavdn.lavoixdunord.fr/501368/article/2018-12-05/ces-phrases-polemiques-d-emmanuel-macron-qui-ont-mis-de-l-huile-sur-le-feu
-Municipales | Oct 2018 | Philippe Saurel considère qu'il y'a 2 personnes qui utilisent les pistes cyclabes, et il n'a pas l'intention d'en créer, il prèfere priviliéger le tramway | https://youtu.be/pbG00kJqD1Q?t=76
+Municipales    | Oct 2018 | Philippe Saurel considère qu'il y'a 2 personnes qui utilisent les pistes cyclabes, et il n'a pas l'intention d'en créer, il prèfere priviliéger le tramway | https://youtu.be/pbG00kJqD1Q?t=76
 Présidentielle | Oct 2018 | Mélenchon qui se croit au dessus de lois | https://www.youtube.com/watch?v=x4V5UY9JUGs et https://www.youtube.com/watch?v=6V9cxMbmUp4
 Présidentielle | Sep 2018 | Macron / Je traverse la rue, je vous trouve» du travail | http://www.lefigaro.fr/politique/le-scan/2018/09/16/25001-20180916ARTFIG00043-macron-a-un-jeune-chomeur-je-traverse-la-rue-je-vous-trouve-du-travail.php
 Présidentielle | Juillet 2018 | Macron / Affaire benalla | https://www.lepoint.fr/politique/tolle-politique-apres-la-revelation-de-l-affaire-benalla-19-07-2018-2237486_20.php
