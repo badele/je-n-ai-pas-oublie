@@ -4,6 +4,7 @@ Il arrive qu'un gouvernement vote une loi contraire à nos convictions, on est �
 
 Type | Date | Description | Liens
 --- | --- | --- | ---
+Présidentielle | Mars 2020 | L'équipe de Macron et Édouard Philippe ont privilégié la victoire des municipales au Coronavirus ainsi qu'une mauvaise gestion de pénurie de masques | https://www.lemonde.fr/politique/article/2020/03/17/entre-campagne-municipale-et-crise-du-coronavirus-le-chemin-de-croix-d-agnes-buzyn_6033395_823448.html
 Municipales    | Jan 2020 | Le fiasco des verts !! (voir le jour j, la débrandande qu'ils vont se prendre) | https://www.midilibre.fr/2020/01/18/municipales-a-montpellier-eelv-retire-son-investiture-a-clothilde-ollier,8670742.php
 Présidentielle | Jan 2020 | Macron & Castaner (surtout lui) ont laissé impuni les nombreux actes de violences policieres | https://www.marianne.net/politique/violences-policieres-c-est-bien-en-france-que-la-police-tire-sur-des-civils-non-armes & https://www.lemonde.fr/police-justice/article/2020/01/15/violences-policieres-une-enquete-ouverte-apres-le-croche-pied-d-un-policier-a-une-manifestante_6025957_1653578.html
 Présidentielle | Avril 2019 | Castaner et les mensonges | https://www.liberation.fr/checknews/2019/05/02/non-l-hopital-de-la-pitie-salpetriere-n-a-pas-ete-attaque-par-des-black-blocs-ni-degrade_1724493?utm_medium=Social&utm_source=Twitter#Echobox=1556805077 & https://twitter.com/PorcherThomas/status/1123978057956589572
