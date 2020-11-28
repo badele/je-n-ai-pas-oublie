@@ -4,6 +4,8 @@ Il arrive qu'un gouvernement vote une loi contraire à nos convictions, on est �
 
 Type | Date | Description | Liens
 --- | --- | --- | ---
+Présidentielle | Novembre 2020 | L'équipe Macron et Darmarin qui passent en force une loi liberticite interdisant de filmer les bavures policieres | https://www.revolutionpermanente.fr/Michel-tabasse-par-la-police-une-video-qui-ouvre-une-breche-contre-la-loi-Securite-globale
+Présidentielle | Octobres 2020 | L'équipe Macron et Castex ont une logique de confinement complétement absurde, ferment les petits magasins, mais laissent ouvert les grandes enseignes | https://www.ouest-france.fr/sante/virus/coronavirus/confinement/confinement-quels-magasins-restent-finalement-ouverts-et-que-peut-on-encore-y-acheter-7038847
 Présidentielle | Mars 2020 | L'équipe de Macron et Édouard Philippe ont privilégié la victoire des municipales au Coronavirus ainsi qu'une mauvaise gestion de pénurie de masques | https://www.lemonde.fr/politique/article/2020/03/17/entre-campagne-municipale-et-crise-du-coronavirus-le-chemin-de-croix-d-agnes-buzyn_6033395_823448.html
 Présidentielle | Mars 2020 | Macron incapable de mesurer les risques, nous demandes de faire comme si ne rien était  | https://people.bfmtv.com/actualite-people/emmanuel-et-brigitte-macron-au-theatre-pour-inciter-les-francais-a-sortir-malgre-le-coronavirus-1870852.html
 Municipales    | Jan 2020 | Le fiasco des verts !! (voir le jour j, la débrandande qu'ils vont se prendre) | https://www.midilibre.fr/2020/01/18/municipales-a-montpellier-eelv-retire-son-investiture-a-clothilde-ollier,8670742.php
