@@ -34,3 +34,6 @@ Présidentielle | Juillet 2015 | Projet de loi Renseignement (atteintes à la vi
 Présidentielle | Juillet 2015 | Projet de loi Renseignement (atteintes à la vie privée / boite noire) | https://twitter.com/ronniegarcia/status/592396941868294144
 Présidentielle | Juillet 2015 | Refus de donner l’asile politique à Julian Assange | http://www.metronews.fr/info/wikileaks-la-france-rejette-la-demande-d-asile-de-julian-assange/mogc!4QDL43jw7cHPI/
 Départemental | Mai 2015 | Les Conseilés départementaux s'augmentent grassement | http://www.midilibre.fr/2015/05/05/pourquoi-les-elus-ont-ete-augmentes,1157442.php
+
+## Projets similaires
+- http://julianoe.eu.org/notes/petites-derives-quotidiennes.html
