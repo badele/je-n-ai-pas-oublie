@@ -2,8 +2,11 @@
 
 Il arrive qu'un gouvernement vote une loi contraire à nos convictions, on est écoeuré sur le moment, mais on a tendance à l'oublier par la suite. Ils en sont conscients ! Ce framacal répertorie les prochaines élections en énumérant les moments clef ainsi que les lois votées par le gouvernement en cours.
 
+
+
 Type | Date | Description | Liens
 --- | --- | --- | ---
+Présidentielle | Avril 2021 | Des dîners clandestins sont organisés pour les politiciens, journalistes, magistrats, policiers, bourgeois sans que ces pratiques soient véritablement sanctionnées, la police est intervenu 5 jours après, contrairement à d'autres affaires, où elle est intervenue le lendemain | [SCANDALE CHALENÇON, DÎNERS CLANDESTINS : L'ENVERS DU DÉCOR](https://www.youtube.com/watch?v=AH7WDk2ue_w)
 Présidentielle | Février 2021 | Les députées LaREM refusent un minimum jeunesse car ils deviendraient "une génération sinistrée attendant la becquée" alors qu'[un 1 étudiant sur 3 à des problèmes à se nourrir](https://twitter.com/lvslmedia/status/1363145514779312132)| ["Ce n'est pas rendre service aux jeunes de les basculer dans l'idée qu'ils seraient une génération sinistrée attendant la becquée"](https://twitter.com/LCP/status/1362406583251140610) - ["la distribution alimentaire pour les étudiants dépasse les 500 bénéficiaires et oblige même à des refus."](https://twitter.com/RemyBuisine/status/1362463159584489474) - ["L'Assemblée rejette le "minimum jeunesse" proposé par les députés socialistes"](https://lcp.fr/actualites/l-assemblee-rejette-le-minimum-jeunesse-propose-par-les-deputes-socialistes-55816)
 Présidentielle | Novembre 2020 | L'équipe Macron et Darmarin qui passent en force une loi liberticite interdisant de filmer les bavures policieres | https://www.revolutionpermanente.fr/Michel-tabasse-par-la-police-une-video-qui-ouvre-une-breche-contre-la-loi-Securite-globale - https://twitter.com/davidperrotin/status/1332407620200783872
 Présidentielle | Octobres 2020 | L'équipe Macron et Castex ont une logique de confinement complétement absurde, ferment les petits magasins, mais laissent ouvert les grandes enseignes | https://www.ouest-france.fr/sante/virus/coronavirus/confinement/confinement-quels-magasins-restent-finalement-ouverts-et-que-peut-on-encore-y-acheter-7038847
